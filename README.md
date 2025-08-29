@@ -1,1 +1,2 @@
-Trabajo CORE I - IV
+
+examen fundamentos
